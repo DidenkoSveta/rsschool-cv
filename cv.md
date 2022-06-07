@@ -7,9 +7,10 @@
  
  **E-mail:** garpia.lana@gmail.com
  
+ **Discord:** Didenko Sveta (@DidenkoSveta)
+ 
  **Telegram:** @garpia_lana
  
- **Discord:** Didenko Sveta (@DidenkoSveta)
 ********************
 ## Briefly About Myself:
 
