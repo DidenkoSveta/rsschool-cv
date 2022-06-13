@@ -1,5 +1,6 @@
 # Svetlana Didenko
 ![myphoto](https://user-images.githubusercontent.com/106669577/172364616-2639adbe-e460-4548-876e-ac11da3eee67.jpg)
+
 *******************
 ## Contact information:
 
